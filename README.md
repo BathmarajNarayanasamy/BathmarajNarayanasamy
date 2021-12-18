@@ -6,6 +6,6 @@
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...
 - 📫 How to reach me: ...bathmaraj3@gmail.com
-- 😄 Pronouns: ...He
+- 😄 Pronouns: ...He/Him
 - ⚡ Fun fact: ...I am half Finish
 -->
